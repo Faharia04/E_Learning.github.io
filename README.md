@@ -1,1 +1,1 @@
-# E_learning.github.io
+# Easy_learning
